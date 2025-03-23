@@ -1,3 +1,3 @@
 ## Tecno Consultores 2023 C.A.
 
-¡Bienvenido a Tecno Consultores 2023! Somos una empresa dedicada a brindar soluciones tecnológicas innovadoras y a la medida de las necesidades de nuestros clientes.
+¡Bienvenido a Tecno Consultores 2023! Somos una empresa líder dedicada a proporcionar soluciones tecnológicas innovadoras y personalizadas, diseñadas para satisfacer las necesidades específicas de cada uno de nuestros clientes. Nos especializamos en transformar desafíos tecnológicos en oportunidades de crecimiento, ofreciendo desde consultoría experta hasta la implementación de soluciones de vanguardia. Nuestro compromiso es impulsar la eficiencia, la productividad y el éxito de tu negocio, brindándote el respaldo y la experiencia que necesitas para sobresalir en el mercado actual.
